@@ -1,1 +1,1 @@
-stuff done by me in fusion 360 
+design by Emre Dayangaç in fusion 360 
